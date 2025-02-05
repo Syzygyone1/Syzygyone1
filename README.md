@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Syzygyone1
 - 👀 I’m interested in applying for a position with DOGE but the online applcation will not accept my application.
-- Any suggestions on getting an applicaiton in another way?
+- Any suggestions on getting an application somehow submitted.
 
 <!---
 Syzygyone1/Syzygyone1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
